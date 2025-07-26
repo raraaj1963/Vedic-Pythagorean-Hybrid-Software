@@ -1,1 +1,0 @@
-Establishing an accurate Ayanamsa.
